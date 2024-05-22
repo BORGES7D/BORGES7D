@@ -1,6 +1,6 @@
 ### BOAS VINDAS AO MEU PERFIL 
 
-Meus nome e Felippe
+Meus nome e FELIPPE MOEDAS 
 
 -Estou estudando alura
 
